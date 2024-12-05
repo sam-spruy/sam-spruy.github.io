@@ -1,4 +1,4 @@
-# sam_spruy.github.io
+# sam-spruy.github.io
 ![img](https://images.unsplash.com/photo-1731955196267-e863d6f39794?q=80&w=1993&auto=format&fit=crop&ixlib=rb-4.0.3&ixid=M3wxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8fA%3D%3D)
 ## 🚀 About Me
  
